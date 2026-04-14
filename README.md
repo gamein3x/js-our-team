@@ -1,0 +1,1 @@
+# Esercizio del Venerdì 10/04/26: Our Team
